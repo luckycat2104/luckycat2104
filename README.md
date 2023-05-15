@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎨🌎Quero viver de arte e viajar pelo muundo
+🎨🌎Quero viver de arte e viajar pelo mundo
 
 
 ## 🌐 Socials:
